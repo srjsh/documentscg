@@ -10,3 +10,31 @@ Satyam Sharma
 
 
 Thank You for Being Part of My Journey
+
+Thank You for Being Part of My Journey
+
+
+prashanth-kumar.moogala@capgemini.com
+sneha.a.das@capgemini.com
+akila.krishnan@capgemini.com
+sri-vaishnavi.p@capgemini.com
+sanket.sarang@capgemini.com
+pooja.n.singh@capgemini.com
+kiran.vasadi@capgemini.com
+dasari.yuvaraj@capgemini.com
+palak.roy@capgemini.com
+minal-shaligram.chavan@capgemini.com
+amit.f.sharma@capgemini.com
+chandresh.singh@capgemini.com
+mahantesh.gadag.ext@capgemini.com
+sameer.dhote@capgemini.com
+anjali.a-j@capgemini.com
+deepti.negi@capgemini.com
+poonam.a.poonam@capgemini.com
+sayantika.b.dutta@capgemini.com
+rahul-kumar.mehta@capgemini.com
+somasekhar.reddy-gajjala@capgemini.com
+aditi.pancholi@capgemini.com
+chinni-jyothi-naga.venkata-alekhya@capgemini.com
+sunil.c.shinde@capgemini.com
+deepika.sinha@capgemini.com
